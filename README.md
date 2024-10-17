@@ -8,6 +8,5 @@ voçê pode entra em contato comigo
 
 0000112631688xsp@al.educacao.sp.gov.br
 
-![](https://tenor.com/pt-BR/view/cr7eu-sou-melhor-gif-27119947)
-
+![](https://media1.tenor.com/m/9Hlh1EvqSvUAAAAC/cristiano-ronaldo-ronaldo.gif)
 
