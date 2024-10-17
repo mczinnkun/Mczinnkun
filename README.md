@@ -8,5 +8,6 @@ voçê pode entra em contato comigo
 
 0000112631688xsp@al.educacao.sp.gov.br
 
-![](https://media1.tenor.com/m/0h3jFbYl4IgAAAAd/tupac-tupac-shakur.gif)
+![](https://tenor.com/pt-BR/view/cr7eu-sou-melhor-gif-27119947)
+
 
